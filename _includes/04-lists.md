@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- La Legion Olvidada
+- Anibal, Enemigo de Roma
+- Aguila de Plata
